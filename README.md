@@ -84,8 +84,8 @@ Many More
 
 ```
 https://t.me/nocrimer
-```
-[TELEGRAM CONTACT](https://t.me/nocrimer) 
+```[
+[TELEGRAM CONTACT](https://www.zerodayhackerexploits.com/)
 .
 
 .
