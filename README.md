@@ -52,9 +52,9 @@ Fully Undetectable and Persistent.
 
 
 ```
-https://t.me/nocrimer
+https://www.zerodayhackerexploits.com/
 ```
-[TELEGRAM CONTACT](https://t.me/nocrimer) 
+
 
 <!-- PRIVATE VERSION -->
 ## Private Version
@@ -83,9 +83,9 @@ Many More
 
 
 ```
-https://t.me/nocrimer
+https://www.zerodayhackerexploits.com/
 ```
-[TELEGRAM CONTACT](https://t.me/nocrimer) 
+
 .
 
 .
@@ -100,6 +100,6 @@ https://t.me/nocrimer
 
 --------------
 
-This project is licensed to BRATARATOFFICIAL@GMAIL.COM
+This project is licensed to https://www.zerodayhackerexploits.com/
 
 #BRATA #BRATARAT #BRATAMALWARE #BRATASPYWARE #BRAZILLIANRAT #BRAZIL
