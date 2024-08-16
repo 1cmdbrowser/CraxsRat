@@ -52,7 +52,7 @@ Fully Undetectable and Persistent.
 
 
 ```
-**https://www.darkexploits.com**
+https://www.darkexploits.com
 ```
 
 
@@ -83,7 +83,7 @@ Many More
 
 
 ```
-**https://www.darkexploits.com**
+https://www.darkexploits.com
 ```
 
 .
