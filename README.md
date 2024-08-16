@@ -52,7 +52,7 @@ Fully Undetectable and Persistent.
 
 
 ```
-https://www.zerodayhackerexploits.com/
+**https://www.darkexploits.com**
 ```
 
 
@@ -83,7 +83,7 @@ Many More
 
 
 ```
-https://www.zerodayhackerexploits.com/
+**https://www.darkexploits.com**
 ```
 
 .
@@ -100,6 +100,6 @@ https://www.zerodayhackerexploits.com/
 
 --------------
 
-This project is licensed to https://www.zerodayhackerexploits.com/
+This project is licensed to https://www.darkexploits.com
 
 #BRATA #BRATARAT #BRATAMALWARE #BRATASPYWARE #BRAZILLIANRAT #BRAZIL
